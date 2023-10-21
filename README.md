@@ -1,4 +1,4 @@
-![](https://media.discordapp.net/attachments/915786645486317598/1160760839352111216/IMG_2244.png?ex=653f1045&is=652c9b45&hm=0da8b684b520c1ca543ca6bc77b2df59d56f429a9c08b679cf6a83863ef366d3&=&width=794&height=836)
+![](https://i.pinimg.com/736x/3e/5c/df/3e5cdfdc205a95a7ea457d9e3905e614.jpg)
 
 <!--
 **mysticmikey/mysticmikey** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
